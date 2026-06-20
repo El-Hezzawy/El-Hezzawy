@@ -29,5 +29,4 @@ I am a high-level **Tech CEO, Executive Director, and Technical Project Manager*
 ### 📬 Let's Connect & Build the Future
 If you are looking to collaborate on high-level tech ventures, discuss strategic project management, or explore tech investment opportunities, feel free to reach out.
 
-- **LinkedIn:** [Insert your LinkedIn profile link here]
-- **Business Inquiries:** [Insert your professional email here]
+00966591667623
