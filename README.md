@@ -51,4 +51,4 @@ Each public showcase repository is designed as a professional case-study page. I
 
 ## Contact
 
-For commercial inquiries, product development, technical consulting, or digital transformation projects, please contact me through the official contact channels listed on my GitHub profile.
+For commercial inquiries, product development, technical consulting, or digital transformation projects, please contact me through the official contact channels listed on my GitHub profile or my number in ksa 0591667623.
